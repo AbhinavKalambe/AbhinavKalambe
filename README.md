@@ -10,7 +10,7 @@
 
 - 📫 How to reach me **kalambeabhinav@gmail.com**
 
-- ⚡ Fun fact **Memer @ Night & Coder @ day**
+- ⚡ Fun fact **Gamer@Night & Coder@day**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
